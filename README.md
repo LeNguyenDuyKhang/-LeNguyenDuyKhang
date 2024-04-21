@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **duykhang0175@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
